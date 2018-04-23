@@ -1,39 +1,22 @@
-## Mamaw's Vegetable Soup!
+## Slow-Cooker Salsa Verde
 
 <b>Author:</b> [Fit Slow-Cooker Queen](https://fitslowcookerqueen.com/slow-cooker-salsa-whole30-paleo/)
 
 ## Ingredients:
 
-* <b>3lb</b> eye round roast
-* <b>1 can</b> of beef broth
-* <b>32 oz. can</b> of tomatoes
-* <b>1 qt</b> of tomato juice (cambell's in a jar (3 small cans))
-* Enough water to cover the meat
-* <b>2lbs</b> of cabbage
-* <b>1</b> small onion
-* <b>3</b> stalks of celery
-* <b>7 or 8</b> potatoes
-* Veggie of your choice
-* <b>1 can</b> of corn
-* <b>1 can</b> of peas
-* <b>1 can</b> of sliced carrots
-* <b>1 can</b> green beans
-* Salt & pepper to taste
+* <b>1lb</b> tomatillos
+* <b>1</b> small onion → chopped
+* <b>1</b> bell pepper → chopped
+* <b>1</b> garlic clove → minced
+* <b>1 tbsp</b> white vinegar
+* <b>1 tsp</b> salt
+* <b>1/2 tsp</b> cumin
+* <b>1/4 tsp</b> pepper
 
 ## Instructions:
 
-1.  Add roast, beef broth, tomatoes, tomato juice, and water to the pot over medium heat. "<i>Get all that cookin'</i>"
+1.  Add all ingredients to the slow cooker.
 
-2.  Chop cabbage, celery, and onions and add it to the pot
+2.  Cook HIGH 1-2 hours or LOW 2-4 hours.
 
-3.  Peel and dice potatoes. Add them to the pot with frozen veggies "<i>after stuff is cooking good</i>"
-
-4.  When potatoes are done, add the corn, peas, sliced carrots, and green beans.
-
-5.  Salt and pepper to taste
-
-6.  Cook on low-medium heat for 3 hours until meat is tender.
-
-7.  Remove meat for sandwiches and serve.
-
-    <b>NOTE:</b> Don't let the cabbage burn or stick!
+3.  Blend all ingredients in a blender or with an imulsion blender.
